@@ -1,4 +1,3 @@
-# Parts of human being
 
 What are we made of?
 
@@ -14,48 +13,36 @@ What are we made of?
 * We are made of 3 distinct parts - Spirit, Soul and Body
 * All three parts must be sanctified and kept blameless
 * Soul and Spirit seem to be intertwined (or difficult to distinguish) but the Word of God is sharp enough to separate them
+* According to God's design the hierarchy is Spirit, Soul and Body as seen in the word order. 
 
-## Creation of Man
-**Genesis 2:7** <a href="http://biblehub.com/interlinear/genesis/2-7.htm" target="_blank">interlinear</a>
-> Then the LORD God formed a man from the dust of the ground and breathed into his nostrils the breath of life, and the man became a living being .
 
-**John 6:63**
-> The Spirit gives life; the flesh counts for nothing. The words I have spoken to you--they are full of the Spirit and life.
 
-**Job 33:4** <a href="http://biblehub.com/interlinear/job/33-4.htm" target="_blank">interlinear</a>
-> The Spirit of God has made me; the breath of the Almighty gives me life.
+## Temple of God
+
+**1 Corinthians 3:16**
+> Don't you know that you yourselves are God's temple and that God's Spirit dwells in your midst?
 
 **Inferences**
 
-* When God breathed into man's nostrils, soul (living being) was formed/produced.
-* Soul seems to be the result of union of the spirit and body.
+* Temple (in old testament) was divided into 3 parts
+	1. Outer court - which everyone can see and go in
+	2. Holy Place - Only priests enter here. They're still outside the veil
+	3. Holy of holies - A place devoid of worldly light where High priest is allowed once a year
+* If Man is a temple of God, then there must be 3 parts
+	1. Body - seen by all
+	2. Soul - feelings, will, intellect (mind)
+	3. Spirit - a place unknowable with worldy light (illumination). It only could be reached if the veil is removed
+
 
 ## Illustrations
 
-* A light bulb when connected to a power source yields light. Bulb with wiring - body. Power/electricity - spirit. Light - Soul.
-* A drop of ink when mixed with a cup of water gives ink-water. The result has become a third component though it can be called as ink/water.
-
-## Holy Spirit vs human spirit
-**Romans 8: 16**
-> The Spirit himself testifies with our spirit that we are God's children.
-
-**Inferences**
-
-* Spirit of man is different from the Holy Spirit
+* A light bulb when connected to a power source yields light. 
+	* Bulb with wiring - body
+	* Power/electricity - spirit
+	* Light - Soul
+* Another rough example - A drop of ink when mixed with a cup of water gives ink-water. The result has become a third component though it can be called as ink/water.
 
 
-
-## Yet to figure out
-* Is 'breath of life' the spirit of man? Or did the breath created the spirit of man?
-* Is the spirit of man eternal?
-* Is the soul formed at the amalgamation of spirit and body? Does it mean it'll cease to exist when the spirit leaves the body?
-* Where does the spirit go when a person dies?
-* Where does the soul go when someone dies?
-* Biblical references for Nee's statement : Joints and Marrows = Mind and Will
-* How and when does spirit and soul get formed today?
-* What happened when Adam & Eve sinned?
-
-#### References
-
+**References**
 
 * Ref - [Watchman Nee](http://www.ministrybooks.org/books.cfm?cid=23)

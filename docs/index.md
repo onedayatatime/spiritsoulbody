@@ -1,17 +1,17 @@
-# Welcome to MkDocs
+# Introduction
 
-For full documentation visit [mkdocs.org](http://mkdocs.org).
+This site is a collection of notes which began as an attempt to understand myself. I was searching through scriptures for answers to the fundamental questions - Who am I? Where did I come from? And where am I going? 
 
-## Commands
+I'm sharing it here in the hope that it might benefit someone. If you have any corrections/inputs/questions, please feel free to write to [me](mailto:walktoeternity@gmail.com)
 
-* `mkdocs new [dir-name]` - Create a new project.
-* `mkdocs serve` - Start the live-reloading docs server.
-* `mkdocs build` - Build the documentation site.
-* `mkdocs help` - Print this help message.
+This site is a work in progress.
 
-## Project layout
+## My beliefs
 
-    mkdocs.yml    # The configuration file.
-    docs/
-        index.md  # The documentation homepage.
-        ...       # Other markdown pages, images and other files.
+* `Trinity` - I believe in one God existing in distinct 3 forms - Father, Son and Holy Spirit.
+* `Word of God` - I believe scripture is given by divine inspiration and only Holy Spirit can help in unraveling the encoded wisdom
+
+## References
+
+* `Spirit, Soul and Body` - A book by Andrew Wommack
+* `Spiritual Man` - A book series by Watchman Nee 

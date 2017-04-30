@@ -2,11 +2,10 @@
 What are we made of?
 
 ## Spirit, Soul and Body
-**1 Thessalonians 5:23**
-> May God himself, the God of peace, sanctify you through and through. May your whole spirit, soul and body be kept blameless at the coming of our Lord Jesus Christ.
 
-**Hebrews 4:12**
-> For the word of God is alive and active. Sharper than any double-edged sword, it penetrates even to dividing soul and spirit, joints and marrow; it judges the thoughts and attitudes of the heart.
+> May God himself, the God of peace, sanctify you through and through. May your whole spirit, soul and body be kept blameless at the coming of our Lord Jesus Christ. - **1 Thessalonians 5:23**
+
+> For the word of God is alive and active. Sharper than any double-edged sword, it penetrates even to dividing soul and spirit, joints and marrow; it judges the thoughts and attitudes of the heart. - **Hebrews 4:12**
 
 **Inferences**
 
@@ -19,8 +18,7 @@ What are we made of?
 
 ## Temple of God
 
-**1 Corinthians 3:16**
-> Don't you know that you yourselves are God's temple and that God's Spirit dwells in your midst?
+> Don't you know that you yourselves are God's temple and that God's Spirit dwells in your  midst? - **1 Corinthians 3:16**
 
 **Inferences**
 

@@ -4,5 +4,18 @@ pages:
     - Composition: composition.md
     - Formation: formation.md
     - Architecture: architecture.md
-    - Facts About Spirit: facts-about-spirit.md
+    - Human spirit: human-spirit.md
+    - Holy Spirit: holy-spirit.md
+    - Evil spirit: evil-spirit.md
+    - Unanswered Questions:
+        - 'Human Spirit': 'unanswered/human-spirit.md'
+        - 'Holy Spirit': 'unanswered/holy-spirit.md'
+        - 'Evil Spirit': 'unanswered/evil-spirit.md'
 theme: material
+extra:
+  palette:
+    primary: 'light green'
+    accent: 'deep orange'
+google_analytics:
+    - 'UA-98323091-1'
+    - 'auto'

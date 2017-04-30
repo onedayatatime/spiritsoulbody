@@ -1,0 +1,4 @@
+site_name: Spirit, Soul and Body 
+pages:
+    - Home: index.md
+    - About: about.md

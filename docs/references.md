@@ -1,4 +1,6 @@
-> And when Jesus had cried out again in a loud voice, he gave up his spirit. - **Matthew 27:50**
+> They were startled and frightened, thinking they saw a ghost. - **Luke 24:37**  
+
+
 
 **1 Corinthians 15:44**
 > it is sown a natural body, it is raised a spiritual body. If there is a natural body, there is also a spiritual body.

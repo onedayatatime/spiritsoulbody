@@ -13,8 +13,16 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Only man's spirit knows his thoughts
 > For who knows a person's thoughts except their own spirit within them? - **1 Corinthians 2:11**
 
-#### Spirit is willing
-> Watch and pray so that you will not fall into temptation. The spirit is willing, but the flesh is weak - **Matthew 26:41**, **Mark 14:38**  
+#### Strong in spriit
+> And the child grew and became strong in spirit; - **Luke 1:80**  
+
+#### Praising/Glorifying God
+> And Mary said: “My soul glorifies the Lord and my spirit rejoices in God my Savior, - **Luke 1: 46,47**  
+
+### Instances
+#### Spirit can return 
+> Her spirit returned, and at once she stood up. Then Jesus told them to give her something to eat. - **Luke 8:55**  
+
 
 #### Human spirit is different from Holy Spirit
 > The Spirit himself testifies with our spirit that we are God's children. - **Romans 8: 16**
@@ -25,6 +33,10 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 
 #### He sighed deeply in His spirit
 > He sighed deeply (in His spirit) and said, "Why does this generation ask for a sign? Truly I tell you, no sign will be given to it. - **Mark 8:12**
+
+#### He gave His spirit in Father's hands
+> And when Jesus had cried out again in a loud voice, he gave up his spirit. - **Matthew 27:50**  
+> Jesus called out with a loud voice, "Father, into your hands I commit my spirit." When he had said this, he breathed his last. - **Luke 23:46**  
 
 ### Yet to figure out
 * Is 'breath of life' the spirit of man? Or did the breath created the spirit of man?

@@ -15,8 +15,8 @@ We could also view soul as the middle man who can communicate with both the spir
 
 ![Pipe Valve](img/pipevalve.jpg)
 
-**Lk 1: 46, 47**
-> And Mary said: "My soul glorifies the Lord. And my spirit has rejoiced in God my Savior.
+
+> And Mary said: "My soul glorifies the Lord. And my spirit has rejoiced in God my Savior. - **Lk 1: 46,47**
 
 **Inferences**
 

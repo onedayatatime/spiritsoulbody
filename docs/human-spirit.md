@@ -23,6 +23,10 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Spirit can return 
 > Her spirit returned, and at once she stood up. Then Jesus told them to give her something to eat. - **Luke 8:55**  
 
+#### Spirit can be seen
+> They were startled and frightened, thinking they saw a ghost. - **Luke 24:37**  
+> Look at my hands and my feet. It is I myself! Touch me and see; a ghost does not have flesh and bones, as you see I have." - **Luke 24:39**  
+
 
 #### Human spirit is different from Holy Spirit
 > The Spirit himself testifies with our spirit that we are God's children. - **Romans 8: 16**
@@ -34,9 +38,17 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### He sighed deeply in His spirit
 > He sighed deeply (in His spirit) and said, "Why does this generation ask for a sign? Truly I tell you, no sign will be given to it. - **Mark 8:12**
 
+#### He was moved in the spirit
+> When Jesus saw her weeping, and the Jews who had come along with her also weeping, he was deeply moved in spirit and troubled - **John 11:33**  
+
+#### He was troubled in the spirit
+> After he had said this, Jesus was troubled in spirit and testified, “Very truly I tell you, one of you is going to betray me.” - **John 13:21**  
+
 #### He gave His spirit in Father's hands
 > And when Jesus had cried out again in a loud voice, he gave up his spirit. - **Matthew 27:50**  
 > Jesus called out with a loud voice, "Father, into your hands I commit my spirit." When he had said this, he breathed his last. - **Luke 23:46**  
+> When he had received the drink, Jesus said, “It is finished.” With that, he bowed his head and gave up his spirit. - **John 19:30**  
+
 
 ### Yet to figure out
 * Is 'breath of life' the spirit of man? Or did the breath created the spirit of man?

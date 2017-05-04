@@ -1,4 +1,3 @@
-> They were startled and frightened, thinking they saw a ghost. - **Luke 24:37**  
 
 
 

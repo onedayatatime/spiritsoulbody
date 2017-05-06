@@ -8,3 +8,4 @@
 
 > ... but anyone who speaks against the Holy Spirit will not be forgiven, either in this age or in the age to come. - **Matthew 12:32**
 
+> We sought out the disciples there and stayed with them seven days. Through the Spirit they urged Paul not to go on to Jerusalem. - **Acts 21:4**  

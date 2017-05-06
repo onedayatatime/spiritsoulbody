@@ -3,6 +3,7 @@
 > The impure spirit shook the man violently and came out of him with a shriek. - **Mark 1:26**  
 > So they brought him. When the spirit saw Jesus, it immediately threw the boy into a convulsion. He fell to the ground and rolled around, foaming at the mouth. - **Mark 9:20**
 > A spirit seizes him and he suddenly screams; it throws him into convulsions so that he foams at the mouth. It scarcely ever leaves him and is destroying him. - **Luke 9:39**  
+> Crowds gathered also from the towns around Jerusalem, bringing their sick and those tormented by impure spirits, and all of them were healed. - **Acts 5:16**  
 
 #### They can cripple people
 > and a woman was there who had been crippled by a spirit for eighteen years. She was bent over and could not straighten up at all. - **Luke 13:11**  
@@ -13,8 +14,12 @@
 #### They can rob people of speech
 > A man in the crowd answered, “Teacher, I brought you my son, who is possessed by a spirit that has robbed him of speech - **Mark 9:17**  
 
+#### They can predict future
+> Once when we were going to the place of prayer, we were met by a female slave who had a spirit by which she predicted the future. She earned a great deal of money for her owners by fortune-telling. - **Acts 16:16**  
 
-
+#### They can answer intelligently
+> One day the evil spirit answered them, “Jesus I know, and Paul I know about, but who are you?” - **Acts 19:15**  
+> Then the man who had the evil spirit jumped on them and overpowered them all. He gave them such a beating that they ran out of the house naked and bleeding. - **Acts 19:16**  
 
 ### Impure spirit(s) and Jesus
 
@@ -43,6 +48,8 @@ Lk 8:26, 9:42
 > Those troubled by impure spirits were cured, - **Luke 6:18**  
 > At that very time Jesus cured many who had diseases, sicknesses and evil spirits, and gave sight to many who were blind. - **Luke 7:21**  
 > (The 12 were with Jesus) and also some women who had been cured of evil spirits and diseases: Mary (called Magdalene) from whom seven demons had come out; - **Luke 8:2**  
+> Crowds gathered also from the towns around Jerusalem, bringing their sick and those tormented by impure spirits, and all of them were healed. - **Acts 5:16**  
+
 
 
 #### Jesus was said to be possessed
@@ -51,7 +58,13 @@ Lk 8:26, 9:42
 #### Jesus gave authority to His disciples
 > Jesus ... gave them (12 disciples) authority to drive out impure spirits ... - **Matthew 10:1**  
 > Calling the Twelve to him, he began to send them out two by two and gave them authority over impure spirits - **Mark 6:7**  
-> The seventy-two returned with joy and said, “Lord, even the demons submit to us in your name.” .... However, do not rejoice that the spirits submit to you, but rejoice that your names are written in heaven.” - **Luke 10:17,20**  
+> The seventy-two returned with joy and said, “Lord, even the demons submit to us in your name.” .... However, do not rejoice that the spirits submit to you, but rejoice that your names are written in heaven.” - **Luke 10:17,20**
+
+#### Jesus' disciples chased 
+> For with shrieks, impure spirits came out of many, and many who were paralyzed or lame were healed. - **Acts 8:7**  
+> She kept this up for many days. Finally Paul became so annoyed that he turned around and said to the spirit, “In the name of Jesus Christ I command you to come out of her!” At that moment the spirit left her. - **Acts 16:18**  
+> so that even handkerchiefs and aprons that had touched him were taken to the sick, and their illnesses were cured and the evil spirits left them. - **Acts 19:12**  
+> Some Jews who went around driving out evil spirits tried to invoke the name of the Lord Jesus over those who were demon-possessed. They would say, “In the name of the Jesus whom Paul preaches, I command you to come out.” - **Acts 19:13**  
 
 **Inferences**
 

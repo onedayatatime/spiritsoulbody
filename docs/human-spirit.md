@@ -25,6 +25,12 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Enthusiastic spirit
 > He had been taught the way of the Lord, and he taught others about Jesus with an enthusiastic spirit and with accuracy. However, he knew only about John's baptism. - **Acts 18:25** 
 
+#### Serving in the spirit
+> God, whom I serve in my spirit in preaching the gospel of his Son, is my witness how constantly I remember you - **Romans 1:9**  
+
+#### Fervent in the spirit
+> Never be lacking in zeal, but keep your spiritual fervor, serving the Lord. - **Romans 12:11**  
+
 #### Decision in the spirit
 > After all this had happened, Paul decided to go to Jerusalem, passing through Macedonia and Achaia. "After I have been there," he said, "I must visit Rome also." - **Acts 19:21**  
 

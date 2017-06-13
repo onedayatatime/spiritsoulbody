@@ -16,6 +16,7 @@
 > Whenever you are arrested and brought to trial, do not worry beforehand about what to say. Just say whatever is given you at the time, for it is not you speaking, but the Holy Spirit. - **Mark 13:11**  
 > for the Holy Spirit will teach you at that time what you should say." - **Luke 12:12**  
 > In my former book, Theophilus, I wrote about all that Jesus began to do and to teach until the day he was taken up to heaven, after giving instructions through the Holy Spirit to the apostles he had chosen. - **Acts 1:1,2**  
+> ... The Holy Spirit spoke the truth to your ancestors when he said through Isaiah the prophet: - **Acts 28:25**  
 
 #### He can speak to us
 > The Spirit told Philip, “Go to that chariot and stay near it.” - **Acts 8:29**  
@@ -41,11 +42,26 @@
 #### He does not burden
 > It seemed good to the Holy Spirit and to us not to burden you with anything beyond the following requirements: - **Acts 15:28**  
 
+#### He intercedes
+> In the same way, the Spirit helps us in our weakness. We do not know what we ought to pray for, but the Spirit himself intercedes for us through wordless groans. - **Romans 8:26**  
+> And he who searches our hearts knows the mind of the Spirit, because the Spirit intercedes for God’s people in accordance with the will of God. - **Romans 8:27**  
+
+#### He dwells within us
+> You, however, are not in the realm of the flesh but are in the realm of the Spirit, if indeed the Spirit of God lives in you. And if anyone does not have the Spirit of Christ, they do not belong to Christ. - **Romands 8:8,9**  
+> And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
+
+
 #### He gives life
-> The Spirit gives life; the flesh counts for nothing. The words I have spoken to you—they are full of the Spirite and life. - **John 6: 63**  
+> The Spirit gives life; the flesh counts for nothing. The words I have spoken to you—they are full of the Spirit and life. - **John 6: 63**  
+> because through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death. - **Romans 8:2**  
+> But if Christ is in you, then even though your body is subject to death because of sin, the Spirit gives life because of righteousness. - **Romans 8:10**  
+> And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
 
 #### He gives power
 > But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.” - **Acts 1:8**  
+
+#### He sanctifies
+> to be a minister of Christ Jesus to the Gentiles. He gave me the priestly duty of proclaiming the gospel of God, so that the Gentiles might become an offering acceptable to God, sanctified by the Holy Spirit. - **Romans 15:16**  
 
 #### He can prevent 
 > Paul and his companions traveled throughout the region of Phrygia and Galatia, having been kept by the Holy Spirit from preaching the word in the province of Asia. When they came to the border of Mysia, they tried to enter Bithynia, but the Spirit of Jesus would not allow them to.- **Acts 16:6,7**  
@@ -53,8 +69,30 @@
 #### He warns
 > I only know that in every city the Holy Spirit warns me that prison and hardships are facing me. - **Acts 20:23**  
 
+
 #### He makes overseers
 > Keep watch over yourselves and all the flock of which the Holy Spirit has made you overseers. Be shepherds of the church of God,a which he bought with his own blood. - **Acts 20:28**  
+
+#### He circumcises the heart
+> No, a person is a Jew who is one inwardly; and circumcision is circumcision of the heart, by the Spirit, not by the written code. - **Romans 2:29**  
+
+#### He pours out God's love
+> And hope does not put us to shame, because God’s love has been poured out into our hearts through the Holy Spirit, who has been given to us. - **Romans 5:5**  
+
+#### He appointed Jesus as Son of God
+> and who through the Spirit of holiness was appointed the Son of God in power by his resurrection from the dead: Jesus Christ our Lord. - **Romans 1:4**  
+
+#### He provides adoption to sonship
+> The Spirit you received does not make you slaves, so that you live in fear again; rather, the Spirit you received brought about your adoption to sonship. And by him we cry, “Abba, Father.” - **Romans 8:15**  
+> The Spirit himself testifies with our spirit that we are God’s children. - **Romans 8:16**  
+> Not only so, but we ourselves, who have the firstfruits of the Spirit, groan inwardly as we wait eagerly for our adoption to sonship, the redemption of our bodies - **Romans 8:23**  
+
+#### Law of the Spirit frees from Law of sin and death
+> because through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death. - **Romans 8:2**  
+
+#### Serve in the new way of the Spirit
+> But now, by dying to what once bound us, we have been released from the law so that we serve in the new way of the Spirit, and not in the old way of the written code. - **Romans 7:6**
+
 
 #### Holy Spirit on people
 > I will put my Spirit on him - **Matthew 12:18**  
@@ -98,21 +136,46 @@ TODO: Isaiah 42:1-4, 61:1
 > But Stephen, full of the Holy Spirit, looked up to heaven and saw the glory of God, and Jesus standing at the right hand of God. - **Acts 7:55**  
 > He was a good man, full of the Holy Spirit and faith, and a great number of people were brought to the Lord. - **Acts 11:24**  
 
+
 #### Being led by the Spirit
 > Then Jesus was led by the Spirit into the wilderness to be tempted by the devil - **Matthew 4:1**  
 > At once the Spirit sent him out into the wilderness - **Mark 1:12**  
 > Jesus ... was led by the Spirit into the wilderness - **Luke 4:1**  
 > Moved by the Spirit, he(Simeon) went into the temple courts. - **Luke 2:27**  
 > The two of them, sent on their way by the Holy Spirit, went down to Seleucia and sailed from there to Cyprus - **Acts 13:4**  
+> For those who are led by the Spirit of God are the children of God. - **Romans 8:14**  
 
 #### Compelled by the Spirit
 > And now, compelled by the Spirit, I am going to Jerusalem, not knowing what will happen to me there - **Acts 20:22**  
+
+#### Living/Walking after the Spirit
+> Therefore, there is now no condemnation for those who are in Christ Jesus, who walk not after the flesh, but after the Spirit. - **Romans 8:1**  
+> ... who do not live according to the flesh but according to the Spirit. - **Romans 8:4**  
+> Those who live according to the flesh have their minds set on what the flesh desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires - **Romans 8:5**  
+> For if you live according to the flesh, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live. - **Romans 8:13**  
+
+#### Mind and Spirit
+> The mind governed by the flesh is death, but the mind governed by the Spirit is life and peace. - **Romans 8:5**  
+
+#### Conscience and Spirit
+> I speak the truth in Christ—I am not lying, my conscience confirms it through the Holy Spirit - **Romans 9:1**  
+
+#### Realm of the Spirit
+> Those who are in the realm of the flesh cannot please God.. You, however, are not in the realm of the flesh but are in the realm of the Spirit, if indeed the Spirit of God lives in you. And if anyone does not have the Spirit of Christ, they do not belong to Christ. - **Romands 8:8,9**
 
 #### Jesus drove out demons by Spirit of God
 >But if it is by the Spirit of God that I drive out demons, then the kingdom of God has come upon you - **Matthew 12:28**
 
 #### Power of the Spirit
 > Jesus returned to Galilee in the power of the Spirit, - **Luke 4:14**  
+> May the God of hope fill you with all joy and peace as you trust in him, so that you may overflow with hope by the power of the Holy Spirit. - **Romans 15:13**  
+> ... by the power of signs and wonders, through the power of the Spirit of God... - **Romans 15:19**  
+
+#### Love of the Spirit
+> I urge you, brothers and sisters, by our Lord Jesus Christ and by the love of the Spirit, to join me in my struggle by praying to God for me - **Romans 15:30**  
+
+#### Righteousness, Peace and Joy in the Spirit
+> For the kingdom of God is not a matter of eating and drinking, but of righteousness, peace and joy in the Holy Spirit, - ** Romans 14:17**  
 
 #### Rejoicing in the Spirit
 > At that time Jesus, full of joy through the Holy Spirit, said, "I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. Yes, Father, for this is what you were pleased to do. - **Luke 10:21**  

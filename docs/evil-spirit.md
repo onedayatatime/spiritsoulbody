@@ -21,6 +21,10 @@
 > One day the evil spirit answered them, “Jesus I know, and Paul I know about, but who are you?” - **Acts 19:15**  
 > Then the man who had the evil spirit jumped on them and overpowered them all. He gave them such a beating that they ran out of the house naked and bleeding. - **Acts 19:16**  
 
+### Other spirits
+#### Spirit of stupor
+> as it is written: “God gave them a spirit of stupor, eyes that could not see and ears that could not hear, to this very day.” - **Romans 11:8**  
+
 ### Impure spirit(s) and Jesus
 
 #### Jesus ordered the spirits and they obeyed Him

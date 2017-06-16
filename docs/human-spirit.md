@@ -16,8 +16,23 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Strong in spriit
 > And the child grew and became strong in spirit; - **Luke 1:80**  
 
-#### Praising/Glorifying God
+#### Refreshed spirit
+> For they refreshed my spirit and yours also. Such men deserve recognition. - **1 Corinthians 16:18**  
+#### Rejoicing in spirit
 > And Mary said: “My soul glorifies the Lord and my spirit rejoices in God my Savior, - **Luke 1: 46,47**  
+
+#### Praising in spirit
+> Otherwise when you are praising God in the Spirit, how can someone else, who is now put in the position of an inquirer, say “Amen” to your thanksgiving, since they do not know what you are saying? - **1 Corinthians 14:16**  
+
+#### Praying in spirit
+> For if I pray in a tongue, my spirit prays, but my mind is unfruitful. - **1 Corinthians 14:14**  
+> So what shall I do? I will pray with my spirit, but I will also pray with my understanding; I will sing with my spirit, but I will also sing with my understanding. - **1 Corinthians 14:15**  
+
+#### Sing with spirit
+> So what shall I do? I will pray with my spirit, but I will also pray with my understanding; I will sing with my spirit, but I will also sing with my understanding. - **1 Corinthians 14:15**  
+
+#### Gentle spirit
+> What do you prefer? Shall I come to you with a rod of discipline, or shall I come in love and with a gentle spirit? - **1 Corinthians 4:21**  
 
 #### Distressed spirit
 > While Paul was waiting for them in Athens, he was greatly distressed to see that the city was full of idols. - **Acts17:16**  
@@ -28,11 +43,28 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Serving in the spirit
 > God, whom I serve in my spirit in preaching the gospel of his Son, is my witness how constantly I remember you - **Romans 1:9**  
 
+#### Glorify God in spirit
+> You were bought with a price: therefore glorify God in your body, and in your spirit, which are God's - **1 Corinthians 6:20**  
+
+#### Devoted to God in spirit
+>  An unmarried woman or virgin is concerned about the Lord’s affairs: Her aim is to be devoted to the Lord in both body and spirit. - **1 Corinthians 7:34**  
+
 #### Fervent in the spirit
 > Never be lacking in zeal, but keep your spiritual fervor, serving the Lord. - **Romans 12:11**  
 
 #### Decision in the spirit
 > After all this had happened, Paul decided to go to Jerusalem, passing through Macedonia and Achaia. "After I have been there," he said, "I must visit Rome also." - **Acts 19:21**  
+
+#### Present in spirit
+> For my part, even though I am not physically present, I am with you in spirit. As one who is present with you in this way, I have already passed judgment in the name of our Lord Jesus on the one who has been doing this - **1 Corinthians 5:3**  
+> So when you are assembled and I am with you in spirit, and the power of our Lord Jesus is present, - **1 Corinthians 5:4**  
+> hand this man over to Satan for the destruction of the flesh,so that his spirit may be saved on the day of the Lord. - **1 Corinthians 5:5**  
+
+#### One in spirit
+> But whoever is united with the Lord is one with him in spirit. - **1 Corinthians 6:17**  
+
+#### Spirit is in control
+> The spirits of prophets are subject to the control of prophets. - **1 Corinthians 14:32**  
 
 ### Instances
 #### Spirit can return 

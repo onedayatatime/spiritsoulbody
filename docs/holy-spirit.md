@@ -17,6 +17,11 @@
 > for the Holy Spirit will teach you at that time what you should say." - **Luke 12:12**  
 > In my former book, Theophilus, I wrote about all that Jesus began to do and to teach until the day he was taken up to heaven, after giving instructions through the Holy Spirit to the apostles he had chosen. - **Acts 1:1,2**  
 > ... The Holy Spirit spoke the truth to your ancestors when he said through Isaiah the prophet: - **Acts 28:25**  
+> Therefore I want you to know that no one who is speaking by the Spirit of God says, “Jesus be cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit. - **1 Corinthians 12:3**  
+
+#### Without Him no one can accept Christ
+> Therefore I want you to know that no one who is speaking by the Spirit of God says, “Jesus be cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit. - **1 Corinthians 12:3**  
+
 
 #### He can speak to us
 > The Spirit told Philip, “Go to that chariot and stay near it.” - **Acts 8:29**  
@@ -28,13 +33,24 @@
 #### He will teach and remind all things
 > But the Advocate, the Holy Spirit, whom the Father will send in my name, will teach you all things and will remind you of everything I have said to you. - **John 14:26**  
 > But when he, the Spirit of truth, comes, he will guide you into all the truth. He will not speak on his own; he will speak only what he hears, and he will tell you what is yet to come. He will glorify me because it is from me that he will receive what he will make known to you - **John 16:13,14**  
+> What we have received is not the spirit of the world, but the Spirit who is from God, so that we may understand what God has freely given us. - **1 Corinthians 2:12**  
+> This is what we speak, not in words taught us by human wisdom but in words taught by the Spirit, explaining spiritual realities with Spirit-taught words - **1 Corinthians 2:13**  
+> The person without the Spirit does not accept the things that come from the Spirit of God but considers them foolishness, and cannot understand them because they are discerned only through the Spirit. - **1 Corinthians 2:14**  
 
 #### He gives wisdom
 > But they could not stand up against the wisdom the Spirit gave him as he spoke. - **Acts 6:10**  
 
+#### He helps judge
+> The person with the Spirit makes judgments about all things, but such a person is not subject to merely human judgments, - **1 Corinthians 2:15**  
+
+
+#### He utters mysteries
+> For anyone who speaks in a tonguea does not speak to people but to God. Indeed, no one understands them; they utter mysteries by the Spirit - **1 Corinthians 14:2**  
+
 #### Holy Spirit can reveal things to come
 > It had been revealed to him by the Holy Spirit that he would not die before he had seen the Lord's Messiah. - **Luke 2:26**
 > One of them, named Agabus, stood up and through the Spirit predicted that a severe famine would spread over the entire Roman world. (This happened during the reign of Claudius.) - **Acts 11:28**  
+> These are the things God has revealed to us by his Spirit. The Spirit searches all things, even the deep things of God. - **1 Corinthians 2:10**  
 
 #### He gives encouragement
 > Then the church throughout Judea, Galilee and Samaria enjoyed a time of peace and was strengthened. Living in the fear of the Lord and encouraged by the Holy Spirit, it increased in numbers. - **Acts 9:31**  
@@ -46,22 +62,42 @@
 > In the same way, the Spirit helps us in our weakness. We do not know what we ought to pray for, but the Spirit himself intercedes for us through wordless groans. - **Romans 8:26**  
 > And he who searches our hearts knows the mind of the Spirit, because the Spirit intercedes for God’s people in accordance with the will of God. - **Romans 8:27**  
 
+#### He searches all things
+> These are the things God has revealed to us by his Spirit. The Spirit searches all things, even the deep things of God. - **1 Corinthians 2:10**  
+
+#### He knows the thoughts of God
+> For who knows a person’s thoughts except their own spirit within them? In the same way no one knows the thoughts of God except the Spirit of God. - **1 Corinthians 2:11**  
+
 #### He dwells within us
 > You, however, are not in the realm of the flesh but are in the realm of the Spirit, if indeed the Spirit of God lives in you. And if anyone does not have the Spirit of Christ, they do not belong to Christ. - **Romands 8:8,9**  
 > And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
-
+> Don’t you know that you yourselves are God’s temple and that God’s Spirit dwells in your midst? - **1 Corinthians 3:16**  
+> Do you not know that your bodies are temples of the Holy Spirit, who is in you, whom you have received from God? You are not your own; - **1 Corinthians 6:19**  
+> In my judgment, she is happier if she stays as she is—and I think that I too have the Spirit of God. - **1 Corinthians 7:40**  
 
 #### He gives life
 > The Spirit gives life; the flesh counts for nothing. The words I have spoken to you—they are full of the Spirit and life. - **John 6: 63**  
 > because through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death. - **Romans 8:2**  
 > But if Christ is in you, then even though your body is subject to death because of sin, the Spirit gives life because of righteousness. - **Romans 8:10**  
 > And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
+> So it is written: “The first man Adam became a living being”f ; the last Adam, a life-giving spirit. - **1 Corinthians 15:45**  
 
 #### He gives power
 > But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.” - **Acts 1:8**  
 
+#### He gives gifts
+> There are different kinds of gifts, but the same Spirit distributes them. - **1 Corinthians 12:4**  
+> To one there is given through the Spirit a message of wisdom, to another a message of knowledge by means of the same Spirit, to another faith by the same Spirit, to another gifts of healing by that one Spirit, to another miraculous powers, to another prophecy, to another distinguishing between spirits, to another speaking in different kinds of tongues, and to still another the interpretation of tongues. - **1 Corinthians 12:8-10**  
+> All these are the work of one and the same Spirit, and he distributes them to each one, just as he determines. - **1 Corinthians 12:11**  
+> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church.  - **1 Corinthians 14:12**  
+
+#### He manifests for common good
+> Now to each one the manifestation of the Spirit is given for the common good. - **1 Corinthians 12:7**  
+> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church.  - **1 Corinthians 14:12**  
+
 #### He sanctifies
 > to be a minister of Christ Jesus to the Gentiles. He gave me the priestly duty of proclaiming the gospel of God, so that the Gentiles might become an offering acceptable to God, sanctified by the Holy Spirit. - **Romans 15:16**  
+> And that is what some of you were. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God. - **1 Corinthians 6:11**  
 
 #### He can prevent 
 > Paul and his companions traveled throughout the region of Phrygia and Galatia, having been kept by the Holy Spirit from preaching the word in the province of Asia. When they came to the border of Mysia, they tried to enter Bithynia, but the Spirit of Jesus would not allow them to.- **Acts 16:6,7**  
@@ -93,6 +129,8 @@
 #### Serve in the new way of the Spirit
 > But now, by dying to what once bound us, we have been released from the law so that we serve in the new way of the Spirit, and not in the old way of the written code. - **Romans 7:6**
 
+#### He is given to drink
+> For we were all baptized byc one Spirit so as to form one body—whether Jews or Gentiles, slave or free—and we were all given the one Spirit to drink. - **1 Corinthians 12:13**  
 
 #### Holy Spirit on people
 > I will put my Spirit on him - **Matthew 12:18**  
@@ -170,6 +208,7 @@ TODO: Isaiah 42:1-4, 61:1
 > Jesus returned to Galilee in the power of the Spirit, - **Luke 4:14**  
 > May the God of hope fill you with all joy and peace as you trust in him, so that you may overflow with hope by the power of the Holy Spirit. - **Romans 15:13**  
 > ... by the power of signs and wonders, through the power of the Spirit of God... - **Romans 15:19**  
+> My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, - **1 Corinthians 2:4**  
 
 #### Love of the Spirit
 > I urge you, brothers and sisters, by our Lord Jesus Christ and by the love of the Spirit, to join me in my struggle by praying to God for me - **Romans 15:30**  
@@ -195,6 +234,7 @@ TODO: Isaiah 42:1-4, 61:1
 > And I myself did not know him, but the one who sent me to baptize with water told me, ‘The man on whom you see the Spirit come down and remain is the one who will baptize with the Holy Spirit.’ - **John 1:33**
 > For John baptized witha water, but in a few days you will be baptized withb the Holy Spirit.” - **Acts 1:5**  
 > Then I remembered what the Lord had said: ‘John baptized witha water, but you will be baptized withb the Holy Spirit.’ - **Acts 11:16**  
+> For we were all baptized by one Spirit so as to form one body—whether Jews or Gentiles, slave or free—and we were all given the one Spirit to drink. - **1 Corinthians 12:13**  
 
 ### Blasphemy against the Spirit
 > ... but blasphemy against the Spirit will not be forgiven. - **Matthew 12:31**  

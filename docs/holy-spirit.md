@@ -19,6 +19,9 @@
 > ... The Holy Spirit spoke the truth to your ancestors when he said through Isaiah the prophet: - **Acts 28:25**  
 > Therefore I want you to know that no one who is speaking by the Spirit of God says, “Jesus be cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit. - **1 Corinthians 12:3**  
 
+#### He begins salvation
+> Are you so foolish? After beginning by means of the Spirit, are you now trying to finish by means of the flesh? - **Galatians 3:3**  
+
 #### Without Him no one can accept Christ
 > Therefore I want you to know that no one who is speaking by the Spirit of God says, “Jesus be cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit. - **1 Corinthians 12:3**  
 
@@ -146,6 +149,8 @@
 > The Spirit you received does not make you slaves, so that you live in fear again; rather, the Spirit you received brought about your adoption to sonship. And by him we cry, “Abba, Father.” - **Romans 8:15**  
 > The Spirit himself testifies with our spirit that we are God’s children. - **Romans 8:16**  
 > Not only so, but we ourselves, who have the firstfruits of the Spirit, groan inwardly as we wait eagerly for our adoption to sonship, the redemption of our bodies - **Romans 8:23**  
+> Because you are his sons, God sent the Spirit of his Son into our hearts, the Spirit who calls out, “Abba, Father.” - **Galatians 4:6**  
+
 
 #### Law of the Spirit frees from Law of sin and death
 > because through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death. - **Romans 8:2**  
@@ -208,6 +213,8 @@ TODO: Isaiah 42:1-4, 61:1
 > Moved by the Spirit, he(Simeon) went into the temple courts. - **Luke 2:27**  
 > The two of them, sent on their way by the Holy Spirit, went down to Seleucia and sailed from there to Cyprus - **Acts 13:4**  
 > For those who are led by the Spirit of God are the children of God. - **Romans 8:14**  
+> But if you are led by the Spirit, you are not under the law. - **Galatians 5:18**  
+
 
 #### Compelled by the Spirit
 > And now, compelled by the Spirit, I am going to Jerusalem, not knowing what will happen to me there - **Acts 20:22**  
@@ -217,6 +224,17 @@ TODO: Isaiah 42:1-4, 61:1
 > ... who do not live according to the flesh but according to the Spirit. - **Romans 8:4**  
 > Those who live according to the flesh have their minds set on what the flesh desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires - **Romans 8:5**  
 > For if you live according to the flesh, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live. - **Romans 8:13**  
+> So I say, walk by the Spirit, and you will not gratify the desires of the flesh. - **Galatians 5:16**  
+> Since we live by the Spirit, let us keep in step with the Spirit. - **Galatians 5:25**  
+> Brothers and sisters, if someone is caught in a sin, you who live by the Spirit should restore that person gently. But watch yourselves, or you also may be tempted. - **Galatians 6:1**  
+
+#### Fruit of the Spirit
+> But the fruit of the Spirit is love, joy, peace, forbearance, kindness, goodness, faithfulness, gentleness and self-control. Against such things there is no law. - **Galatians 5:22,23**  
+
+#### Desires of Spirit
+> For the flesh desires what is contrary to the Spirit, and the Spirit what is contrary to the flesh. They are in conflict with each other, so that you are not to do whatever you want. - **Galatians 5:17**  
+> Whoever sows to please their flesh, from the flesh will reap destruction; whoever sows to please the Spirit, from the Spirit will reap eternal life. - **Galatians 6:8**  
+
 
 #### Mind and Spirit
 > The mind governed by the flesh is death, but the mind governed by the Spirit is life and peace. - **Romans 8:5**  
@@ -230,11 +248,16 @@ TODO: Isaiah 42:1-4, 61:1
 #### Jesus drove out demons by Spirit of God
 >But if it is by the Spirit of God that I drive out demons, then the kingdom of God has come upon you - **Matthew 12:28**
 
+#### Hope through the Spirit
+> For through the Spirit we eagerly await by faith the righteousness for which we hope - **Galatians 5:5**  
+
+
 #### Power of the Spirit
 > Jesus returned to Galilee in the power of the Spirit, - **Luke 4:14**  
 > May the God of hope fill you with all joy and peace as you trust in him, so that you may overflow with hope by the power of the Holy Spirit. - **Romans 15:13**  
 > ... by the power of signs and wonders, through the power of the Spirit of God... - **Romans 15:19**  
 > My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, - **1 Corinthians 2:4**  
+> At that time the son born according to the flesh persecuted the son born by the power of the Spirit. - **Galatians 4:29**  
 
 #### Love of the Spirit
 > I urge you, brothers and sisters, by our Lord Jesus Christ and by the love of the Spirit, to join me in my struggle by praying to God for me - **Romans 15:30**  
@@ -299,7 +322,10 @@ TODO: Isaiah 42:1-4, 61:1
 #### Who will receive?
 > The promise is for you and your children and for all who are far off—for all whom the Lord our God will call.” - **Acts 2:39**  
 > We are witnesses of these things, and so is the Holy Spirit, whom God has given to those who obey him.” - **Act 5:32**  
-> and asked them, “Did you receive the Holy Spirit whena you believed?” They answered, “No, we have not even heard that there is a Holy Spirit.” - **Acts 19:2**  
+> and asked them, “Did you receive the Holy Spirit when you believed?” They answered, “No, we have not even heard that there is a Holy Spirit.” - **Acts 19:2**  
+> I would like to learn just one thing from you: Did you receive the Spirit by the works of the law, or by believing what you heard? - **Galatians 3:2**  
+> So again I ask, does God give you his Spirit and work miracles among you by the works of the law, or by your believing what you heard? - **Galatians 3:5**  
+> He redeemed us in order that the blessing given to Abraham might come to the Gentiles through Christ Jesus, so that by faith we might receive the promise of the Spirit. - **Galatians 3:14**  
 
 #### Lying to the Spirit
 > Then Peter said, “Ananias, how is it that Satan has so filled your heart that you have lied to the Holy Spirit and have kept for yourself some of the money you received for the land? - **Acts 5:3**  

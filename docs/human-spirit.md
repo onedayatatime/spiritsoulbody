@@ -74,7 +74,8 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Spirit is in control
 > The spirits of prophets are subject to the control of prophets. - **1 Corinthians 14:32**  
 
-
+#### Grace with spirit
+> The grace of our Lord Jesus Christ be with your spirit, brothers and sisters. Amen. - **Galatians 6:18**  
 
 ### Instances
 #### Spirit can return 

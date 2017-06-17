@@ -25,6 +25,9 @@
 #### Spirit of stupor
 > as it is written: “God gave them a spirit of stupor, eyes that could not see and ears that could not hear, to this very day.” - **Romans 11:8**  
 
+#### Different spirit
+> For if someone comes to you and preaches a Jesus other than the Jesus we preached, or if you receive a different spirit from the Spirit you received, or a different gospel from the one you accepted, you put up with it easily enough. - **2 Corinthians 11:4**  
+
 ### Impure spirit(s) and Jesus
 
 #### Jesus ordered the spirits and they obeyed Him

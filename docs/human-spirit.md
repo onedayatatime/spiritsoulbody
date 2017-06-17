@@ -20,6 +20,7 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 > For they refreshed my spirit and yours also. Such men deserve recognition. - **1 Corinthians 16:18**  
 #### Rejoicing in spirit
 > And Mary said: “My soul glorifies the Lord and my spirit rejoices in God my Savior, - **Luke 1: 46,47**  
+> ... In addition to our own encouragement, we were especially delighted to see how happy Titus was, because his spirit has been refreshed by all of you - **2 Corinthians 7:13**  
 
 #### Praising in spirit
 > Otherwise when you are praising God in the Spirit, how can someone else, who is now put in the position of an inquirer, say “Amen” to your thanksgiving, since they do not know what you are saying? - **1 Corinthians 14:16**  
@@ -36,6 +37,12 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 
 #### Distressed spirit
 > While Paul was waiting for them in Athens, he was greatly distressed to see that the city was full of idols. - **Acts17:16**  
+
+#### Spirit without peace/rest
+> I still had no peace of mind, because I did not find my brother Titus there. So I said goodbye to them and went on to Macedonia. - **2 Corinthians 2:13**  
+
+#### Contamination of spirit
+> Therefore, since we have these promises, dear friends, let us purify ourselves from everything that contaminates body and spirit, perfecting holiness out of reverence for God. - **2 Corinthians 7:1**  
 
 #### Enthusiastic spirit
 > He had been taught the way of the Lord, and he taught others about Jesus with an enthusiastic spirit and with accuracy. However, he knew only about John's baptism. - **Acts 18:25** 
@@ -62,9 +69,12 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 
 #### One in spirit
 > But whoever is united with the Lord is one with him in spirit. - **1 Corinthians 6:17**  
+> ... Titus did not exploit you, did he? Did we not walk in the same footsteps by the same Spirit? - **2 Corinthians 12:18**  
 
 #### Spirit is in control
 > The spirits of prophets are subject to the control of prophets. - **1 Corinthians 14:32**  
+
+
 
 ### Instances
 #### Spirit can return 
@@ -98,6 +108,8 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 
 #### Stephen gave his spirit in Jesus' hands
 > While they were stoning him, Stephen prayed, “Lord Jesus, receive my spirit.” - **Acts 7:59**  
+
+
 
 ### Yet to figure out
 * Is 'breath of life' the spirit of man? Or did the breath created the spirit of man?

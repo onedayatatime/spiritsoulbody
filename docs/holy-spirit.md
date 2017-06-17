@@ -37,6 +37,9 @@
 > This is what we speak, not in words taught us by human wisdom but in words taught by the Spirit, explaining spiritual realities with Spirit-taught words - **1 Corinthians 2:13**  
 > The person without the Spirit does not accept the things that come from the Spirit of God but considers them foolishness, and cannot understand them because they are discerned only through the Spirit. - **1 Corinthians 2:14**  
 
+#### He has fellowship
+> May the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all. - **2 Corinthians 13:14**  
+
 #### He gives wisdom
 > But they could not stand up against the wisdom the Spirit gave him as he spoke. - **Acts 6:10**  
 
@@ -81,7 +84,10 @@
 > But if Christ is in you, then even though your body is subject to death because of sin, the Spirit gives life because of righteousness. - **Romans 8:10**  
 > And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
 > So it is written: “The first man Adam became a living being”f ; the last Adam, a life-giving spirit. - **1 Corinthians 15:45**  
+> He has made us competent as ministers of a new covenant—not of the letter but of the Spirit; for the letter kills, but the Spirit gives life. - **2 Corinthians 3:6**  
 
+#### He has a ministry
+> will not the ministry of the Spirit be even more glorious? - **2 Corinthians 3:8**  
 #### He gives power
 > But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.” - **Acts 1:8**  
 
@@ -89,11 +95,16 @@
 > There are different kinds of gifts, but the same Spirit distributes them. - **1 Corinthians 12:4**  
 > To one there is given through the Spirit a message of wisdom, to another a message of knowledge by means of the same Spirit, to another faith by the same Spirit, to another gifts of healing by that one Spirit, to another miraculous powers, to another prophecy, to another distinguishing between spirits, to another speaking in different kinds of tongues, and to still another the interpretation of tongues. - **1 Corinthians 12:8-10**  
 > All these are the work of one and the same Spirit, and he distributes them to each one, just as he determines. - **1 Corinthians 12:11**  
-> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church.  - **1 Corinthians 14:12**  
+> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church. - **1 Corinthians 14:12**  
+
+#### Spirit of faith
+> It is written: “I believed; therefore I have spoken.” Since we have that same spirit of faith, we also believe and therefore speak - **2 Corinthians 4:13**  
+
+
 
 #### He manifests for common good
 > Now to each one the manifestation of the Spirit is given for the common good. - **1 Corinthians 12:7**  
-> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church.  - **1 Corinthians 14:12**  
+> So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church. - **1 Corinthians 14:12**  
 
 #### He sanctifies
 > to be a minister of Christ Jesus to the Gentiles. He gave me the priestly duty of proclaiming the gospel of God, so that the Gentiles might become an offering acceptable to God, sanctified by the Holy Spirit. - **Romans 15:16**  
@@ -105,9 +116,22 @@
 #### He warns
 > I only know that in every city the Holy Spirit warns me that prison and hardships are facing me. - **Acts 20:23**  
 
+#### He gives freedom
+> Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. - **2 Corinthians 3:17**  
+
+#### Lord is the Spirit
+> Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. - **2 Corinthians 3:17**  
+> And we all, who with unveiled faces contemplatea the Lord’s glory, are being transformed into his image with ever-increasing glory, which comes from the Lord, who is the Spirit. - **2 Corinthians 3:18**  
 
 #### He makes overseers
 > Keep watch over yourselves and all the flock of which the Holy Spirit has made you overseers. Be shepherds of the church of God,a which he bought with his own blood. - **Acts 20:28**  
+
+#### He lives in our hearts
+> He anointed us, set his seal of ownership on us, and put his Spirit in our hearts as a deposit, guaranteeing what is to come. - **2 Corinthians 1:22**  
+
+#### He is a deposit/pledge
+> He anointed us, set his seal of ownership on us, and put his Spirit in our hearts as a deposit, guaranteeing what is to come. - **2 Corinthians 1:22**  
+> Now the one who has fashioned us for this very purpose is God, who has given us the Spirit as a deposit, guaranteeing what is to come. - **2 Corinthians 5:5**  
 
 #### He circumcises the heart
 > No, a person is a Jew who is one inwardly; and circumcision is circumcision of the heart, by the Spirit, not by the written code. - **Romans 2:29**  
@@ -132,6 +156,8 @@
 #### He is given to drink
 > For we were all baptized byc one Spirit so as to form one body—whether Jews or Gentiles, slave or free—and we were all given the one Spirit to drink. - **1 Corinthians 12:13**  
 
+#### He writes on the heart
+> You show that you are a letter from Christ, the result of our ministry, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. - **2 Corinthians 3:3**  
 #### Holy Spirit on people
 > I will put my Spirit on him - **Matthew 12:18**  
 > ... he(John) saw the Spirit of God descending like a dove and alighting on him(Jesus). - **Matthew 3:16**  

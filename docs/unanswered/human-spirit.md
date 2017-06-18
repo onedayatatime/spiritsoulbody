@@ -14,3 +14,6 @@ Are they poor by choice or circumstance?
 #### Sadducees & Pharisees
 > (The Sadducees say that there is no resurrection, and that there are neither angels nor spirits, but the Pharisees believe all these things.) - **Acts 23:8**  
 > There was a great uproar, and some of the teachers of the law who were Pharisees stood up and argued vigorously. “We find nothing wrong with this man,” they said. “What if a spirit or an angel has spoken to him?” - **Acts 23:9**  
+
+#### One in spirit
+> Whatever happens, conduct yourselves in a manner worthy of the gospel of Christ. Then, whether I come and see you or only hear about you in my absence, I will know that you stand firm in the one Spirit, striving together as one for the faith of the gospel - **Philippians 1:27**  

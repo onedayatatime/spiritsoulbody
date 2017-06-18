@@ -327,6 +327,7 @@ TODO: Isaiah 42:1-4, 61:1
 > “When the Advocate comes, whom I will send to you from the Father—the Spirit of truth who goes out from the Father—he will testify about me. - **John 15:26** 
 > When Simon saw that the Spirit was given at the laying on of the apostles’ hands, he offered them money and said, “Give me also this ability so that everyone on whom I lay my hands may receive the Holy Spirit.” - **Acts 8:18,19**  
 > God, who knows the heart, showed that he accepted them by giving the Holy Spirit to them, just as he did to us. - **Acts 15:8**  
+> for I know that through your prayers and God’s provision of the Spirit of Jesus Christ what has happened to me will turn out for my deliverance. - **Philippians 1:19**  
 
 #### Receiving the Spirit
 > Whoever believes in me, as Scripture has said, rivers of living water will flow from within them. By this he meant the Spirit, whom those who believed in him were later to receive. Up to that time the Spirit had not been given, since Jesus had not yet been glorified. - **John 7:39**  

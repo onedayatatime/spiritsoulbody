@@ -48,10 +48,16 @@
 
 #### He gives wisdom
 > But they could not stand up against the wisdom the Spirit gave him as he spoke. - **Acts 6:10**  
-> I keep asking that the God of our Lord Jesus Christ, the glorious Father, may give you the Spiritf of wisdom and revelation, so that you may know him better. - **Ephesians 1:17**  
+> I keep asking that the God of our Lord Jesus Christ, the glorious Father, may give you the Spirit of wisdom and revelation, so that you may know him better. - **Ephesians 1:17**  
+> For this reason, since the day we heard about you, we have not stopped praying for you. We continually ask God to fill you with the knowledge of his will through all the wisdom and understanding that the Spirit gives, - **Colossians 1:9**  
+> Let the message of Christ dwell among you richly as you teach and admonish one another with all wisdom through psalms, hymns, and songs from the Spirit, singing to God with gratitude in your hearts. - **Colossians 3:16**  
 
 #### He helps judge
 > The person with the Spirit makes judgments about all things, but such a person is not subject to merely human judgments, - **1 Corinthians 2:15**  
+
+#### He gives a song
+Do not get drunk on wine, which leads to debauchery. Instead, be filled with the Spirit, speaking to one another with psalms, hymns, and songs from the Spirit. Sing and make music from your heart to the Lord, always giving thanks to God the Father for everything, in the name of our Lord Jesus Christ. - **Ephesians 5:18-20**  
+> Let the message of Christ dwell among you richly as you teach and admonish one another with all wisdom through psalms, hymns, and songs from the Spirit, singing to God with gratitude in your hearts. - **Colossians 3:16**  
 
 
 #### He utters mysteries
@@ -107,10 +113,14 @@
 > But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.” - **Acts 1:8**  
 
 #### He gives gifts
+> Now about the gifts of the Spirit, brothers and sisters, I do not want you to be uninformed. - **1 Corinthians 12:1**  
 > There are different kinds of gifts, but the same Spirit distributes them. - **1 Corinthians 12:4**  
 > To one there is given through the Spirit a message of wisdom, to another a message of knowledge by means of the same Spirit, to another faith by the same Spirit, to another gifts of healing by that one Spirit, to another miraculous powers, to another prophecy, to another distinguishing between spirits, to another speaking in different kinds of tongues, and to still another the interpretation of tongues. - **1 Corinthians 12:8-10**  
 > All these are the work of one and the same Spirit, and he distributes them to each one, just as he determines. - **1 Corinthians 12:11**  
+> Follow the way of love and eagerly desire gifts of the Spirit, especially prophecy - **1 Corinthians 14:1**  
 > So it is with you. Since you are eager for gifts of the Spirit, try to excel in those that build up the church. - **1 Corinthians 14:12**  
+> I long to see you so that I may impart to you some spiritual gift to make you strong - **Romans 1:11**  
+> If anyone thinks they are a prophet or otherwise gifted by the Spirit, let them acknowledge that what I am writing to you is the Lord’s command. - **1 Corinthians 14:37**  
 
 #### Spirit of faith
 > It is written: “I believed; therefore I have spoken.” Since we have that same spirit of faith, we also believe and therefore speak - **2 Corinthians 4:13**  
@@ -176,7 +186,7 @@
 > But now, by dying to what once bound us, we have been released from the law so that we serve in the new way of the Spirit, and not in the old way of the written code. - **Romans 7:6**
 
 #### He is given to drink
-> For we were all baptized byc one Spirit so as to form one body—whether Jews or Gentiles, slave or free—and we were all given the one Spirit to drink. - **1 Corinthians 12:13**  
+> For we were all baptized by one Spirit so as to form one body—whether Jews or Gentiles, slave or free—and we were all given the one Spirit to drink. - **1 Corinthians 12:13**  
 
 #### He writes on the heart
 > You show that you are a letter from Christ, the result of our ministry, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. - **2 Corinthians 3:3**  
@@ -216,6 +226,7 @@ TODO: Isaiah 42:1-4, 61:1
 > And the disciples were filled with joy and with the Holy Spirit. - **Acts 13:52**  
 > Do not get drunk on wine, which leads to debauchery. Instead, be filled with the Spirit, - **Ephesians 5:18**  
 
+
 #### Full of Holy Spirit
 > Jesus, full of the Holy Spirit, left the Jordan - **Luke 4:1**  
 > The Spirit gives life; the flesh counts for nothing. The words I have spoken to you—they are full of the Spirite and life. - **John 6:63**  
@@ -224,6 +235,8 @@ TODO: Isaiah 42:1-4, 61:1
 > But Stephen, full of the Holy Spirit, looked up to heaven and saw the glory of God, and Jesus standing at the right hand of God. - **Acts 7:55**  
 > He was a good man, full of the Holy Spirit and faith, and a great number of people were brought to the Lord. - **Acts 11:24**  
 
+#### Living by Spirit
+> Brothers and sisters, I could not address you as people who live by the Spirit but as people who are still worldly—mere infants in Christ. - **1 Corinthians 3:1**  
 
 #### Being led by the Spirit
 > Then Jesus was led by the Spirit into the wilderness to be tempted by the devil - **Matthew 4:1**  
@@ -245,7 +258,7 @@ TODO: Isaiah 42:1-4, 61:1
 > For if you live according to the flesh, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live. - **Romans 8:13**  
 > So I say, walk by the Spirit, and you will not gratify the desires of the flesh. - **Galatians 5:16**  
 > Since we live by the Spirit, let us keep in step with the Spirit. - **Galatians 5:25**  
-> Brothers and sisters, if someone is caught in a sin, you who live by the Spirit should restore that person gently. But watch yourselves, or you also may be tempted. - **Galatians 6:1**  
+> Brothers and sisters, if someone is caught in a sin, you who live by the Spirit should restore that person gently (with spirit of gentleness). But watch yourselves, or you also may be tempted. - **Galatians 6:1**  
 
 #### Fruit of the Spirit
 > But the fruit of the Spirit is love, joy, peace, forbearance, kindness, goodness, faithfulness, gentleness and self-control. Against such things there is no law. - **Galatians 5:22,23**  

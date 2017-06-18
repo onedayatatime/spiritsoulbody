@@ -43,8 +43,12 @@
 #### He has fellowship
 > May the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all. - **2 Corinthians 13:14**  
 
+#### He gives access to Father
+> For through him we both have access to the Father by one Spirit. - **Ephesians 2:18**  
+
 #### He gives wisdom
 > But they could not stand up against the wisdom the Spirit gave him as he spoke. - **Acts 6:10**  
+> I keep asking that the God of our Lord Jesus Christ, the glorious Father, may give you the Spiritf of wisdom and revelation, so that you may know him better. - **Ephesians 1:17**  
 
 #### He helps judge
 > The person with the Spirit makes judgments about all things, but such a person is not subject to merely human judgments, - **1 Corinthians 2:15**  
@@ -57,9 +61,16 @@
 > It had been revealed to him by the Holy Spirit that he would not die before he had seen the Lord's Messiah. - **Luke 2:26**
 > One of them, named Agabus, stood up and through the Spirit predicted that a severe famine would spread over the entire Roman world. (This happened during the reign of Claudius.) - **Acts 11:28**  
 > These are the things God has revealed to us by his Spirit. The Spirit searches all things, even the deep things of God. - **1 Corinthians 2:10**  
+> which was not made known to people in other generations as it has now been revealed by the Spirit to God’s holy apostles and prophets. - **Ephesians 3:5**  
 
 #### He gives encouragement
 > Then the church throughout Judea, Galilee and Samaria enjoyed a time of peace and was strengthened. Living in the fear of the Lord and encouraged by the Holy Spirit, it increased in numbers. - **Acts 9:31**  
+
+#### He strengthens
+> I pray that out of his glorious riches he may strengthen you with power through his Spirit in your inner being, so that Christ may dwell in your hearts through faith. - **Ephesians 3:16,17**  
+
+#### He brings unity
+> Make every effort to keep the unity of the Spirit through the bond of peace. - **Ephesians 4:3**  
 
 #### He does not burden
 > It seemed good to the Holy Spirit and to us not to burden you with anything beyond the following requirements: - **Acts 15:28**  
@@ -80,6 +91,7 @@
 > Don’t you know that you yourselves are God’s temple and that God’s Spirit dwells in your midst? - **1 Corinthians 3:16**  
 > Do you not know that your bodies are temples of the Holy Spirit, who is in you, whom you have received from God? You are not your own; - **1 Corinthians 6:19**  
 > In my judgment, she is happier if she stays as she is—and I think that I too have the Spirit of God. - **1 Corinthians 7:40**  
+> And in him you too are being built together to become a dwelling in which God lives by his Spirit. - **Ephesians 2:22** 
 
 #### He gives life
 > The Spirit gives life; the flesh counts for nothing. The words I have spoken to you—they are full of the Spirit and life. - **John 6: 63**  
@@ -132,9 +144,14 @@
 #### He lives in our hearts
 > He anointed us, set his seal of ownership on us, and put his Spirit in our hearts as a deposit, guaranteeing what is to come. - **2 Corinthians 1:22**  
 
-#### He is a deposit/pledge
+#### He is a deposit/pledge/seal
 > He anointed us, set his seal of ownership on us, and put his Spirit in our hearts as a deposit, guaranteeing what is to come. - **2 Corinthians 1:22**  
 > Now the one who has fashioned us for this very purpose is God, who has given us the Spirit as a deposit, guaranteeing what is to come. - **2 Corinthians 5:5**  
+> And you also were included in Christ when you heard the message of truth, the gospel of your salvation. When you believed, you were marked in him with a seal, the promised Holy Spirit, who is a deposit guaranteeing our inheritance until the redemption of those who are God’s possession—to the praise of his glory. - **Ephesians 1: 13**  
+> And do not grieve the Holy Spirit of God, with whom you were sealed for the day of redemption. - **Ephesians 4:30**  
+
+#### He can be grieved
+> And do not grieve the Holy Spirit of God, with whom you were sealed for the day of redemption. - **Ephesians 4:30**  
 
 #### He circumcises the heart
 > No, a person is a Jew who is one inwardly; and circumcision is circumcision of the heart, by the Spirit, not by the written code. - **Romans 2:29**  
@@ -163,6 +180,7 @@
 
 #### He writes on the heart
 > You show that you are a letter from Christ, the result of our ministry, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. - **2 Corinthians 3:3**  
+
 #### Holy Spirit on people
 > I will put my Spirit on him - **Matthew 12:18**  
 > ... he(John) saw the Spirit of God descending like a dove and alighting on him(Jesus). - **Matthew 3:16**  
@@ -196,6 +214,7 @@ TODO: Isaiah 42:1-4, 61:1
 > Then Ananias went to the house and entered it. Placing his hands on Saul, he said, “Brother Saul, the Lord—Jesus, who appeared to you on the road as you were coming here—has sent me so that you may see again and be filled with the Holy Spirit.” - **Acts 9:17**  
 > Then Saul, who was also called Paul, filled with the Holy Spirit, looked straight at Elymas and said - **Acts 13:9**  
 > And the disciples were filled with joy and with the Holy Spirit. - **Acts 13:52**  
+> Do not get drunk on wine, which leads to debauchery. Instead, be filled with the Spirit, - **Ephesians 5:18**  
 
 #### Full of Holy Spirit
 > Jesus, full of the Holy Spirit, left the Jordan - **Luke 4:1**  
@@ -251,6 +270,8 @@ TODO: Isaiah 42:1-4, 61:1
 #### Hope through the Spirit
 > For through the Spirit we eagerly await by faith the righteousness for which we hope - **Galatians 5:5**  
 
+#### Sword of the Spirit
+> Take the helmet of salvation and the sword of the Spirit, which is the word of God. - **Ephesians 6:17**  
 
 #### Power of the Spirit
 > Jesus returned to Galilee in the power of the Spirit, - **Luke 4:14**  
@@ -258,6 +279,9 @@ TODO: Isaiah 42:1-4, 61:1
 > ... by the power of signs and wonders, through the power of the Spirit of God... - **Romans 15:19**  
 > My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, - **1 Corinthians 2:4**  
 > At that time the son born according to the flesh persecuted the son born by the power of the Spirit. - **Galatians 4:29**  
+
+#### Praying in Spirit
+> And pray in the Spirit on all occasions with all kinds of prayers and requests. - **Ephesians 6:18**  
 
 #### Love of the Spirit
 > I urge you, brothers and sisters, by our Lord Jesus Christ and by the love of the Spirit, to join me in my struggle by praying to God for me - **Romans 15:30**  
@@ -335,3 +359,4 @@ TODO: Isaiah 42:1-4, 61:1
 
 #### Resisting the Spirit
 > “You stiff-necked people! Your hearts and ears are still uncircumcised. You are just like your ancestors: You always resist the Holy Spirit! - **Acts 7:51**  
+

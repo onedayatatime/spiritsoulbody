@@ -110,6 +110,8 @@ Discernment of right and wrong is not influenced by the knowledge in mind. It is
 #### Stephen gave his spirit in Jesus' hands
 > While they were stoning him, Stephen prayed, “Lord Jesus, receive my spirit.” - **Acts 7:59**  
 
+#### To be made new in spirit
+> to be made new in the attitude (spirit) of your minds; - **Ephesians 4:23**  
 
 
 ### Yet to figure out

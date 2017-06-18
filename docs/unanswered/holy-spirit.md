@@ -15,6 +15,7 @@
 #### Why does the mortal body need life
 > And if the Spirit of him who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you. - **Romans 8:11**  
 
-
+#### One body and one Spirit
+> There is one body and one Spirit, just as you were called to one hope when you were called; - **Ephesians 4:4**  
 
 > We sought out the disciples there and stayed with them seven days. Through the Spirit they urged Paul not to go on to Jerusalem. - **Acts 21:4**  

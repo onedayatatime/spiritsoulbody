@@ -28,6 +28,10 @@
 #### Different spirit
 > For if someone comes to you and preaches a Jesus other than the Jesus we preached, or if you receive a different spirit from the Spirit you received, or a different gospel from the one you accepted, you put up with it easily enough. - **2 Corinthians 11:4**  
 
+#### spirit who is at work now
+> As for you, you were dead in your transgressions and sins, in which you used to live when you followed the ways of this world and of the ruler of the kingdom of the air, the spirit who is now at work in those who are disobedient - **Ephesians 2:2**  
+
+
 ### Impure spirit(s) and Jesus
 
 #### Jesus ordered the spirits and they obeyed Him
